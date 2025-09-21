@@ -1,1 +1,1 @@
-**Descarga la imagen, confio en ti**
+**Descarga la imagen misterio SOLAMENTE, confio en ti**
